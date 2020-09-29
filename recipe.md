@@ -8,4 +8,4 @@ Directions:
 7. after a little shaking, let the mixture become semi-hard in your freezer. 
 8. take out and enjoy!
 
-~Richa Limaye~
+-Richa Limaye-
