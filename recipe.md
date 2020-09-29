@@ -7,3 +7,5 @@ Directions:
 6. placing one bag in the other (your mixture bag into the ice bag) shake the bag for a while
 7. after a little shaking, let the mixture become semi-hard in your freezer. 
 8. take out and enjoy!
+
+~Richa Limaye~
